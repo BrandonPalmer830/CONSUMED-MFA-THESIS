@@ -1,0 +1,2 @@
+# CONSUMED-MFA-THESIS
+CONSUMED is an ambiguous Virtual Reality fantasy game, driven by narrative. Similar to the world of distractions that we live in today, attention merchandising is the main source of currency spent by players to unlock new content while exploring inside their dream. Through out the players journey, meaning beings to arise as they continue to experience their loss of time, money and energy. Leaving the player to work towards gaining their sense of time back, and waking up from the dream state.
